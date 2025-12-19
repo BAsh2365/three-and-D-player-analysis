@@ -21,7 +21,7 @@ Block percentage, which usually increases as you get closer to the paint, requir
 
 So, do 3&D players still exist? Yes, they do, and they won't be going away anytime soon, though many players can possess qualities of 3&D today compared to when the archetype was first discovered in the late 2000s to early 2010s.
 
-So, what does a 3&D player look like in 2025/26? A player who possesses a skillset with interior defense capabilities, who can swing the ball, and make an immediate impact. A 3&D player of the 2020s is your role player of the 2010s. 
+So, what does a 3&D player look like in 2025/26? A player who possesses a skillset with interior defense capabilities, who can swing the ball, and make an immediate impact. A 3&D player of the 2010s is your role player of the 2020s. 
 
 # Metrics
 
